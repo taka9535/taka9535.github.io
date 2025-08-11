@@ -1,1 +1,0 @@
-# taka9535.github.io
